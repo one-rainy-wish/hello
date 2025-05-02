@@ -14,7 +14,8 @@ THROWS UP ALL OF THESE
 ![image](https://github.com/user-attachments/assets/4651aeb5-c033-4660-a41a-850dbe0d3876)
 ![image](https://github.com/user-attachments/assets/c69f6054-9092-41cd-a888-6de43c5dcc58)
 ![image](https://github.com/user-attachments/assets/a709fb55-6b8b-4e0f-a914-7b2c371bca84)
-![image](https://github.com/user-attachments/assets/19296ff0-bd26-41e7-a14d-5a7b97ebc8bb)
+![i![image](https://github.com/user-attachments/assets/62cad69f-b8db-420c-b538-74a0e00f810a)
+mage](https://github.com/user-attachments/assets/19296ff0-bd26-41e7-a14d-5a7b97ebc8bb)
 
 ![image](https://github.com/user-attachments/assets/a3cd04fd-a374-439d-91bf-f9941afde50d)
 ![image](https://github.com/user-attachments/assets/b0288a7a-3709-4be4-b183-1c2999b69667)
