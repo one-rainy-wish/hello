@@ -2,7 +2,7 @@
 
 
 
-
+old blinkies and stamps i mis u..
 
 ## THIS IS MESSY AND OUTDATED, TO SEE A BETTER ABOUT ME AND COLLECTION OF STAMPS/BLINKIES, CHECK OUT MY STRAWPAGE, TY! 
 https://poopypacker.straw.page/home
@@ -139,4 +139,3 @@ https://poopypacker.straw.page/home
 
 
 
-# WOW! Don't you just wanna be my friend after seeing that? I know I do!
